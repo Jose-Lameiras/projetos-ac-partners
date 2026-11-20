@@ -47,4 +47,4 @@ Substituir as folhas de papel das máquinas de injeção por uma solução digit
 
 ---
 
-📫 josejoao342@gmail.com · [Portfólio](https://jose-lameiras.github.io) · [LinkedIn](https://www.linkedin.com/in/jjlameiras)
+josejoao342@gmail.com · [Portfólio](https://jose-lameiras.github.io) · [LinkedIn](https://www.linkedin.com/in/jjlameiras)
